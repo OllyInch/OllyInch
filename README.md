@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @OllyInch
+- 👀 I’m interested in games, music, skating, but im here for games design and 3d art
+- 🌱 I’m currently learning how to use blueprint in UE5 to enable to develop projects on my own
+- 💞️ I’m looking to collaborate on anything at all, shoot me a message :)
+- 📫 How to reach me: Discord: iamegg     Email:oinchlo@gmail.com
+- 😄 Pronouns: Any
+- ⚡ Fun fact: I am clinically obssessed with ULTRAKILL
